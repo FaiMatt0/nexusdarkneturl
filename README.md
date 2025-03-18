@@ -16,7 +16,7 @@
 [torzon4xtq5x2im3p2y36jdrk2jlsakxmrellcvhzcf5iswzgt7onsad.onion](https://weblinkdirect.xyz/F3qZFZ?s=torzon&a=git&ref=nexusdarkneturlwrf4t)
 
 # Ares market
-[aresbuy2pgeaolftrbhcxlsbg5qw35wer77h45egg4omainek2gtpxid.onion](https://weblinkdirect.xyz/F3qZFZ?s=ares&a=git&ref=nexusdarkneturlwrf4t)
+[http://sn2sfd5uj3ihm2udstpwduisq2jjrovnx2gy326bjfzcd66bc4c7u3id.onion](http://sn2sfd5uj3ihm2udstpwduisq2jjrovnx2gy326bjfzcd66bc4c7u3id.onion)]
 
 # Cocorico
 [xv3dbyu75coadsrwlbofnsg3dj5axfzcxh5v4nrvtcn3ey7uv6vrf5yd.onion](https://weblinkdirect.xyz/F3qZFZ?s=cocorico&a=git&ref=nexusdarkneturlwrf4t)
